@@ -1,4 +1,4 @@
-# :fire:IT dark team:fire:
+# :fire:IT dark team
 
 Аналитик: Герасимов Анатолий Михайлович
 
