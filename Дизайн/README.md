@@ -1,4 +1,4 @@
-# Артефакты Дизайнера
+**Артефакты Дизайнера**
 
 Google Drive:
 https://drive.google.com/drive/folders/11cEkvh-QB5n0Z9MUWqe7p20kgBcTicK6
