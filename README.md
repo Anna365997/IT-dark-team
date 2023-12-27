@@ -2,6 +2,8 @@
 
 **Новелла:** https://drive.google.com/drive/folders/1DpL7sNMq5_k0sQZ5Up6GX2YeuyR8NQcf?usp=drive_link
 
+___
+
 Аналитик: Герасимов Анатолий Михайлович
 
 Дизайнер: Соловьева Ольга Павловна
