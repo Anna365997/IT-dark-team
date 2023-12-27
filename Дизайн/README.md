@@ -1,9 +1,5 @@
-Артефакты Дизайнера
-
 Google Drive:
 https://drive.google.com/drive/folders/11cEkvh-QB5n0Z9MUWqe7p20kgBcTicK6
-
-ф
 
 Figma:
 https://www.figma.com/file/oX5j0gHarJWAfOQtGO6d9C/%D0%90%D1%80%D1%82%D0%B5%D1%84%D0%B0%D0%BA%D1%82%D1%8B-%D0%B4%D0%B8%D0%B7%D0%B0%D0%B9%D0%BD%D0%B5%D1%80%D0%B0?type=design&node-id=0-1&mode=design&t=C9y2UWf8ls4xT2If-0
